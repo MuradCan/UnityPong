@@ -21,3 +21,4 @@ Aşağıdaki videodan kodlama aşamalarını takip edebilirsiniz.
 
 https://youtu.be/a0o6f0-rqnc
 
+https://www.gamer.com.tr
